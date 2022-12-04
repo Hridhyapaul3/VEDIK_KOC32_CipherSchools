@@ -1,1 +1,0 @@
-gallary_2.jpg
